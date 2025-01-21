@@ -2,7 +2,7 @@
 #### Team Members
 Director:
 
-Editor: David Bullock
+Editor:
 
 Storyboarding/Scripting: Penny Jorgensen
 

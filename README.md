@@ -21,4 +21,4 @@ Lighting Technician: Jane Eldredge
 ## ShotList
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule
-![Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan.png?raw=true)
+![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)

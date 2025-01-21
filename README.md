@@ -1,9 +1,13 @@
 # Video Production Team #4
 #### Team Members
 Director:
-Editor:
-Storyboarding:
+
+Editor: David Bullock
+
+Storyboarding/Scripting: Penny Jorgensen
+
 Camera Operator:
+
 Sound:
 
 ## StoryBoard

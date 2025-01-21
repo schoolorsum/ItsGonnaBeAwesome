@@ -1,12 +1,12 @@
 # Video Production Team #4
 #### Team Members
-Director:
+Director: Alex Teeples
 
-Editor:
+Editor: David Bullock
 
 Storyboarding/Scripting: Penny Jorgensen
 
-Camera Operator:
+Camera Operator: Alex Teeples
 
 Sound: Elliott Stoker
 

@@ -1,5 +1,5 @@
 # Video Production Team #4
-#### Team Members
+#### Team Members:
 Director: Alex Teeples
 
 Editor: David Bullock

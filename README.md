@@ -17,7 +17,7 @@ Teleprompter Operator: Kai Hutchins
 Lighting Technician: Jane Eldredge
 
 ## StoryBoard
-![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)
+![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
 ## ShotList
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule

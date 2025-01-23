@@ -22,3 +22,9 @@ Lighting Technician: Jane Eldredge
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
+
+## Opening Videos
+
+Penny Jorgensen
+
+[Video] (https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing)

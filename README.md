@@ -25,6 +25,6 @@ Lighting Technician: Jane Eldredge
 
 ## Opening Videos
 
-Penny Jorgensen
+### Penny Jorgensen
 
-[Video] (https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing)
+Video <https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing>

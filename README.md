@@ -28,6 +28,8 @@ Lighting Technician: Jane
 [Video](<https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>)
 # Intro by ___
 [Video](<https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing>)
-### Penny Jorgensen
+# Penny Jorgensen
 
 # Kai's Intro Segment [Submission](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing)
+
+# [Elliott Stoker](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing)

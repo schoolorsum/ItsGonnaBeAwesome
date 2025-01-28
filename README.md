@@ -30,4 +30,4 @@ Lighting Technician: Jane
 [Video](<https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing>)
 ### Penny Jorgensen
 
-### Kai's [Submission](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing)
+# Kai's Intro Segment [Submission](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing)

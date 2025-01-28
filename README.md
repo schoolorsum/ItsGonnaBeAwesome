@@ -26,9 +26,11 @@ Lighting Technician: Jane
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex
  
-## [Halloween Special](<https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>) by David
+## [Halloween Special](<https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>) by Alex
 
 ## [Intro](https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing) by Penny 
+
+## [Intro](https://drive.google.com/file/d/1GndCfV_oRuM5ZZCzkgnx03LwGZJwm-eD/view?usp=drive_link) by David
 
 ## [Intro](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing) by Kai
 

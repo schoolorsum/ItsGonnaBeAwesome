@@ -33,3 +33,5 @@ Video <https://drive.google.com/file/d/1ldND1t8QBJxt3AM_Wg1WgPDJVMD8SDFH/view?us
 # [Intro](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing) by Kai
 
 # [Intro](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing) by Elliott
+
+# [Intro](https://www.canva.com/design/DAGdCNbfWCg/u7S9EBGmr_WFmpH37o9nLg/watch?utm_content=DAGdCNbfWCg&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hb9b932bfff) by Jo

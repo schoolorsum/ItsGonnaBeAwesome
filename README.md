@@ -8,7 +8,7 @@ Storyboarding/Scripting: Penny
 
 Camera Operator: Alex
 
-Sound: Elliott
+Sound: [Elliott](https://github.com/ElliottStoker/vidproductionportfolio)
 
 Graphic Designer: Jo
 

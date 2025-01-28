@@ -1,4 +1,4 @@
-# Video Production Team #4
+# It's Gonna Be Awesome Productions
 #### Team Members:
 Director: Alex Teeples
 

@@ -16,8 +16,6 @@ Teleprompter Operator: [Kai](https://github.com/VentiShake/vidproportfolio2025)
 
 Lighting Technician: Jane
 
-![Hermit Crab](https://i.natgeofe.com/n/91ee8866-32c1-46c9-a390-13b381262dc8/01-hermit-crabs-minden_00512417_16x9.jpg)
-
 ## StoryBoard
 ![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)
 ## ShotList

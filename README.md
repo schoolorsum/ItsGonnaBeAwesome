@@ -12,7 +12,7 @@ Sound: Elliott
 
 Graphic Designer: Jo
 
-Teleprompter Operator: Kai
+Teleprompter Operator: [Kai](https://github.com/VentiShake/vidproportfolio2025)
 
 Lighting Technician: Jane
 

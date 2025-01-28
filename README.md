@@ -32,4 +32,4 @@ Lighting Technician: Jane
 
 # [Intro](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing) by Kai
 
-# [Elliott Stoker](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing)
+# [Intro](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing) by Elliott

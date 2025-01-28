@@ -1,20 +1,20 @@
 # It's Gonna Be Awesome Productions
 #### Team Members:
-Director: Alex Teeples
+Director: Alex
 
-Editor: David Bullock
+Editor: David
 
-Storyboarding/Scripting: Penny Jorgensen
+Storyboarding/Scripting: Penny
 
-Camera Operator: Alex Teeples
+Camera Operator: Alex
 
-Sound: Elliott Stoker
+Sound: Elliott
 
-Graphic Designer: Jo Foster
+Graphic Designer: Jo
 
-Teleprompter Operator: Kai Hutchins
+Teleprompter Operator: Kai
 
-Lighting Technician: Jane Eldredge
+Lighting Technician: Jane
 
 ## StoryBoard
 ![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)

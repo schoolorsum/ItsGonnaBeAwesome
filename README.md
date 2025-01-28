@@ -10,7 +10,7 @@ Camera Operator: Alex
 
 Sound: [Elliott](https://github.com/ElliottStoker/vidproductionportfolio)
 
-Graphic Designer: Jo
+Graphic Designer: [Jo](https://j-foster-beep.github.io/J-vidportfolio/)
 
 Teleprompter Operator: [Kai](https://github.com/VentiShake/vidproportfolio2025)
 

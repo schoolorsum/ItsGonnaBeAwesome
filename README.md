@@ -1,6 +1,6 @@
 # It's Gonna Be Awesome Productions
 #### Team Members:
-Director: Alex
+Director: [Alex]([https://github.com/schoolorsum](https://github.com/schoolorsum/VideoProductionPort))
 
 Editor: David
 

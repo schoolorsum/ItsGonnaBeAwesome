@@ -24,6 +24,8 @@ Lighting Technician: Jane
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
 
 ## Introduction Sequences
+# Intro by Alex Teeples
+Video <https://drive.google.com/file/d/1ldND1t8QBJxt3AM_Wg1WgPDJVMD8SDFH/view?usp=drive_link>
 # Halloween Special by Alex Teeples
 [Video](<https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>)
 # [Intro](https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing) by Penny 

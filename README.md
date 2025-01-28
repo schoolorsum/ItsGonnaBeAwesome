@@ -25,6 +25,8 @@ Lighting Technician: Jane
 
 ## Introduction Sequences
 # Halloween Special by Alex Teeples
+Video <https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>
+# Intro by ___
 Video <https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing>
 ### Penny Jorgensen
 

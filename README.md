@@ -37,3 +37,12 @@ Lighting Technician: Jane
 ## [Intro](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing) by Elliott
 
 ## [Intro](https://www.canva.com/design/DAGdCNbfWCg/u7S9EBGmr_WFmpH37o9nLg/watch?utm_content=DAGdCNbfWCg&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hb9b932bfff) by Jo
+
+## [Intro] (https://github.com/user-attachments/assets/fef1662a-6848-4cae-9ff3-b589375e4b91) by Jane
+
+
+
+
+
+
+

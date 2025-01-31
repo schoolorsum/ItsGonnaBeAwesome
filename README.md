@@ -14,7 +14,7 @@ Graphic Designer: [Jo](https://j-foster-beep.github.io/J-vidportfolio/)
 
 Teleprompter Operator: [Kai](https://github.com/VentiShake/vidproportfolio2025)
 
-Lighting Technician: Jane
+Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 ## StoryBoard
 ![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)

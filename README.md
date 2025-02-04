@@ -18,7 +18,7 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 ## StoryBoard
 ![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)
-## ShotList
+## Shot List
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)

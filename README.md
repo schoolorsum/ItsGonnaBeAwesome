@@ -42,6 +42,8 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 # Outro Sequences
 
+## [Outro](https://drive.google.com/file/d/1B_7ofvRpm4RfS3USKNu4KHJW6r3zZp3p/view?usp=sharing) by Alex
+
 ## [Outro](https://drive.google.com/file/d/1nJFPIcF9ih-DWg9rjp7_a9fGr-yfj9C8/view?usp=sharing) by Kai
 
 ## [Outro](https://drive.google.com/file/d/1QHaZsnEDFgjudAyOnsnvD46-pmgkkwxe/view?usp=share_link) by Elliott

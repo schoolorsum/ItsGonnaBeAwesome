@@ -54,7 +54,6 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 ## [Outro](https://drive.google.com/file/d/1XAn0xT6E7Po-HBM9qNAbNLu2peb0GlQL/view?usp=sharing) by Jane
 
-# Work Of Art Wednesday Proposed Segment
 
 ## [Storyboard](https://drive.google.com/file/d/1eHj37ApqeSg40Tvv9W9ypnuxOn9VdAo0/view?usp=sharing)
 

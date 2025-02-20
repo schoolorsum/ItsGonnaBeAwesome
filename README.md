@@ -22,8 +22,8 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
-## Proposed Segments
-# Work of Art Wednesday
+# Proposed Segments
+## Work of Art Wednesday
 
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex

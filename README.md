@@ -57,6 +57,6 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 # Works of Art Wednesday Segment
 
-## [Storyboard](https://drive.google.com/file/d/1eHj37ApqeSg40Tvv9W9ypnuxOn9VdAo0/view?usp=sharing)
+## ![Storyboard](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/TV%20&%20Film%20Storyboard%20in%20Black%20and%20White%20Red%20Dark%20&%20Serious%20Style%20(1).png?raw=true)
 
 ### [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)

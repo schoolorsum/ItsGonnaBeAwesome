@@ -61,4 +61,4 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)
 
-## [Script](https://docs.google.com/document/d/1mPTxFIWVCB9zWyqtZCvj43UchBXseTO1gXis5EQ8LSI/edit?usp=sharing)
+## [Script](https://docs.google.com/document/d/1mPTxFIWVCB9zWyqtZCvj43UchBXseTO1gXis5EQ8LSI/edit?tab=t.0)

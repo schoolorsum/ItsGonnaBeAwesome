@@ -61,5 +61,5 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)
 
-## Script 
-![Script](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/Work%20of%20Art%20Wednesday%20Script.pdf)
+## ![Script](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/Work%20of%20Art%20Wednesday%20Script.pdf)
+

@@ -23,6 +23,7 @@ Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
 # Proposed Segments
+## [Work of Art Wednesdau](https://drive.google.com/file/d/1Yo4uQmphESjqgOuU9yCRoAcQ1j5Fk2jx/view?usp=sharing)
 
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex

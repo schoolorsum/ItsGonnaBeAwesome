@@ -69,3 +69,6 @@ Emotional Support: Cache
 
 ## ![Script](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/Work%20of%20Art%20Wednesday%20Script.pdf)
 
+## Segment Videos
+
+### Kai's [Proposed Segment] (https://drive.google.com/file/d/1XufQiyImsq2C71NWzSh-IAOPfbvLdFdf/view?usp=sharing)

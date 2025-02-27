@@ -27,6 +27,8 @@ Emotional Support: Cache
 # Proposed Segments
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1Yo4uQmphESjqgOuU9yCRoAcQ1j5Fk2jx/view?usp=sharing) by Alex
 
+## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
+
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex
  

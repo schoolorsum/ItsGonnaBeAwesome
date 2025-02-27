@@ -59,11 +59,15 @@ Emotional Support: Cache
 ## [Outro](https://drive.google.com/file/d/1XAn0xT6E7Po-HBM9qNAbNLu2peb0GlQL/view?usp=sharing) by Jane
 
 
-# Works of Art Wednesday Segment
+# Work of Art Wednesday Segment
 
 ## ![Storyboard](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/TV%20&%20Film%20Storyboard%20in%20Black%20and%20White%20Red%20Dark%20&%20Serious%20Style%20(1).png?raw=true)
 
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)
 
 ## ![Script](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/Work%20of%20Art%20Wednesday%20Script.pdf)
+
+# Work of Art Wednesday Segment Proposals
+
+## [WoAW](https://drive.google.com/drive/folders/1gPWYil9Ezgjf7LfIcAT5B_SZ56WEbCjF) by Jane
 

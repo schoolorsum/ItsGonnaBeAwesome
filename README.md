@@ -29,6 +29,8 @@ Emotional Support: Cache
 
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
 
+## [Work of Art Wednesday](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing) by Jane
+
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex
  
@@ -66,8 +68,4 @@ Emotional Support: Cache
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)
 
 ## ![Script](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/Work%20of%20Art%20Wednesday%20Script.pdf)
-
-# Work of Art Wednesday Segment Proposals
-
-## [WoAW](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing) by Jane
 

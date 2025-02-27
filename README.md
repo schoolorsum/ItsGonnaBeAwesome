@@ -33,7 +33,7 @@ Emotional Support: Cache
 
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1XufQiyImsq2C71NWzSh-IAOPfbvLdFdf/view?usp=sharing) by Kai
 
-## [Work of Art Wednesday](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing) By Elliott
+## [Work of Art Wednesday](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing) by Elliott
 
 
 # Introduction Sequences

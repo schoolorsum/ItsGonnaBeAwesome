@@ -69,5 +69,5 @@ Emotional Support: Cache
 
 # Work of Art Wednesday Segment Proposals
 
-## [WoAW](https://drive.google.com/drive/folders/1gPWYil9Ezgjf7LfIcAT5B_SZ56WEbCjF) by Jane
+## [WoAW](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing) by Jane
 

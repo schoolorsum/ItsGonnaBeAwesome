@@ -72,3 +72,5 @@ Emotional Support: Cache
 ## Segment Videos
 
 ### Kai's [Proposed Segment](https://drive.google.com/file/d/1XufQiyImsq2C71NWzSh-IAOPfbvLdFdf/view?usp=sharing)
+
+### Elliott's [Proposed Segment](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing)

@@ -24,18 +24,6 @@ Emotional Support: Cache
 [Shot List](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Shot%20List.pdf)
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
-# Proposed Segments
-## [Work of Art Wednesday](https://drive.google.com/file/d/14lHVcAB2staB83jdWFYY3fLL1lcaGFPl/view?usp=sharing) by Alex
-
-## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
-
-## [Work of Art Wednesday](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing) by Jane
-
-## [Work of Art Wednesday](https://drive.google.com/file/d/1XufQiyImsq2C71NWzSh-IAOPfbvLdFdf/view?usp=sharing) by Kai
-
-## [Work of Art Wednesday](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing) by Elliott
-
-## [Work of Art Wendesday](https://drive.google.com/file/d/1HaBFOv5C67R69LmiKgaQ2O-kYl-5Yh8G/view?usp=sharing) by Davie
 
 
 # Introduction Sequences
@@ -71,6 +59,19 @@ Emotional Support: Cache
 
 
 # Work of Art Wednesday Segment
+
+# Proposed Segments
+## [Work of Art Wednesday](https://drive.google.com/file/d/14lHVcAB2staB83jdWFYY3fLL1lcaGFPl/view?usp=sharing) by Alex
+
+## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
+
+## [Work of Art Wednesday](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing) by Jane
+
+## [Work of Art Wednesday](https://drive.google.com/file/d/1XufQiyImsq2C71NWzSh-IAOPfbvLdFdf/view?usp=sharing) by Kai
+
+## [Work of Art Wednesday](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing) by Elliott
+
+## [Work of Art Wendesday](https://drive.google.com/file/d/1HaBFOv5C67R69LmiKgaQ2O-kYl-5Yh8G/view?usp=sharing) by Davie
 
 ## ![Storyboard](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/TV%20&%20Film%20Storyboard%20in%20Black%20and%20White%20Red%20Dark%20&%20Serious%20Style%20(1).png?raw=true)
 

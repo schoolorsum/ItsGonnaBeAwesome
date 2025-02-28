@@ -35,6 +35,8 @@ Emotional Support: Cache
 
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1KhqC_X2-Jy8I-IWJvnDGt9g4L2LI6raC/view?usp=sharing) by Elliott
 
+## [Work of Art Wendesday](https://drive.google.com/file/d/1HaBFOv5C67R69LmiKgaQ2O-kYl-5Yh8G/view?usp=sharing) by Davie
+
 
 # Introduction Sequences
 ## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex

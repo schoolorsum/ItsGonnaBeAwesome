@@ -61,7 +61,7 @@ Emotional Support: Cache
 # Work of Art Wednesday Segment
 
 # Proposed Segments
-## [Work of Art Wednesday](https://drive.google.com/file/d/14lHVcAB2staB83jdWFYY3fLL1lcaGFPl/view?usp=sharing) by Alex
+## [Work of Art Wednesday](https://drive.google.com/file/d/1XwYPErNJOOpYV97jOQDDDSK0jMEjMHTR/view?usp=sharing) by Alex
 
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
 

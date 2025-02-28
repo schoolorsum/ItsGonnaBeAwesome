@@ -67,6 +67,8 @@ Emotional Support: Cache
 
 ## [Outro](https://drive.google.com/file/d/1XAn0xT6E7Po-HBM9qNAbNLu2peb0GlQL/view?usp=sharing) by Jane
 
+## [Outro](https://drive.google.com/file/d/1hzTpoXS7I3Gb94xW8QyMJkBFKkkLrRAX/view?usp=sharing) by Davie
+
 
 # Work of Art Wednesday Segment
 

@@ -25,7 +25,7 @@ Emotional Support: Cache
 ## Schedule
 ![Production Schedule](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/ProductionPlan(1).png?raw=true)
 # Proposed Segments
-## [Work of Art Wednesday](https://drive.google.com/file/d/1Yo4uQmphESjqgOuU9yCRoAcQ1j5Fk2jx/view?usp=sharing) by Alex
+## [Work of Art Wednesday](https://drive.google.com/file/d/14lHVcAB2staB83jdWFYY3fLL1lcaGFPl/view?usp=sharing) by Alex
 
 ## [Work of Art Wednesday](https://drive.google.com/file/d/1I90tHxmeRHlbczyp-PIbP3eHdcEtzfOe/view?usp=sharing) by Penny
 

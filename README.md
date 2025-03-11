@@ -85,3 +85,5 @@ Emotional Support: Cache
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)-Kai and Elliott (Also Planned Shots while filming)
 
 ## [Script](https://docs.google.com/document/d/1mPTxFIWVCB9zWyqtZCvj43UchBXseTO1gXis5EQ8LSI/edit?usp=sharing)
+
+## .[Final Video](https://drive.google.com/file/d/172laEHfzwTi2JKkFMvkPnbgj4MOs_lc6/view?usp=sharing) -by Davie

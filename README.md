@@ -78,7 +78,7 @@ Emotional Support: Cache
 
 # Final Segment
 
-### [Updated Work of Art Wendesday](https://drive.google.com/file/d/172laEHfzwTi2JKkFMvkPnbgj4MOs_lc6/view?usp=sharing) by Davie
+## [Updated Work of Art Wendesday](https://drive.google.com/file/d/172laEHfzwTi2JKkFMvkPnbgj4MOs_lc6/view?usp=sharing) by Davie
 
 ## ![Storyboard](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/TV%20&%20Film%20Storyboard%20in%20Black%20and%20White%20Red%20Dark%20&%20Serious%20Style%20(1).png?raw=true)
 
@@ -86,4 +86,3 @@ Emotional Support: Cache
 
 ## [Script](https://docs.google.com/document/d/1mPTxFIWVCB9zWyqtZCvj43UchBXseTO1gXis5EQ8LSI/edit?usp=sharing)
 
-## .[Final Video](https://drive.google.com/file/d/172laEHfzwTi2JKkFMvkPnbgj4MOs_lc6/view?usp=sharing) -by Davie

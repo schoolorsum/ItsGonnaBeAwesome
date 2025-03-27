@@ -89,3 +89,7 @@ Emotional Support: Cache
 # Community of Caring Segment
 
 [Research](https://docs.google.com/document/d/1MgURQEJs8iw7JYUlBqvrMDJX1q6YB6Wx_57bbJ93bro/edit?tab=t.0)
+
+# Community of Caring Shot List
+
+[Shot List](https://docs.google.com/document/d/14UwRzuT1GrdBt94bFltNZMgBtiewyrzZr5hu9qDGP-0/edit?usp=sharing)

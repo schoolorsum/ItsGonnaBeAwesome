@@ -86,3 +86,6 @@ Emotional Support: Cache
 
 ## [Updated Work of Art Wendesday](https://drive.google.com/file/d/172laEHfzwTi2JKkFMvkPnbgj4MOs_lc6/view?usp=sharing) by Davie
 
+# Community of Caring Segment
+
+[Research](https://docs.google.com/document/d/1MgURQEJs8iw7JYUlBqvrMDJX1q6YB6Wx_57bbJ93bro/edit?tab=t.0)

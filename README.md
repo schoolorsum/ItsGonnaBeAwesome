@@ -93,3 +93,7 @@ Emotional Support: Cache
 # Community of Caring Shot List
 
 [Shot List](https://docs.google.com/document/d/14UwRzuT1GrdBt94bFltNZMgBtiewyrzZr5hu9qDGP-0/edit?usp=sharing)
+
+# Community of Caring Storyboard
+
+[Storyboard](https://drive.google.com/file/d/1H4XxSmhJuZruqCFoRY-KlKtppF284v36/view?usp=sharing)

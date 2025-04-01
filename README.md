@@ -90,14 +90,8 @@ Emotional Support: Cache
 
 [Research](https://docs.google.com/document/d/1MgURQEJs8iw7JYUlBqvrMDJX1q6YB6Wx_57bbJ93bro/edit?tab=t.0)
 
-# Community of Caring Shot List
-
 [Shot List](https://docs.google.com/document/d/14UwRzuT1GrdBt94bFltNZMgBtiewyrzZr5hu9qDGP-0/edit?usp=sharing)
-
-# Community of Caring Storyboard
 
 [Storyboard](https://drive.google.com/file/d/1H4XxSmhJuZruqCFoRY-KlKtppF284v36/view?usp=sharing)
 
-# Interview Questions
-
-[Questions](https://docs.google.com/document/d/1u_um48rdTowUN-R5aCttvrxCBuqUQPy6LZI_otsMt1M/edit?tab=t.0)
+[Interview Questions](https://docs.google.com/document/d/1u_um48rdTowUN-R5aCttvrxCBuqUQPy6LZI_otsMt1M/edit?tab=t.0)

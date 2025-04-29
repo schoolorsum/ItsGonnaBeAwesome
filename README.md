@@ -76,6 +76,8 @@ Emotional Support: Cache
 
 ### [Work of Art Wendesday](https://drive.google.com/file/d/1J4KJ-4PN1PMF0CoLogaeZkcotIErCOSk/view?usp=sharing) by Cache
 
+### [Yearbook Stomp](https://drive.google.com/file/d/18V-lKc2KKf3jYG8O50WyeCFddBx8c01p/view?usp=sharing) by Alex
+
 ## ![Storyboard](https://github.com/schoolorsum/ItsGonnaBeAwesome/blob/main/Assets/TV%20&%20Film%20Storyboard%20in%20Black%20and%20White%20Red%20Dark%20&%20Serious%20Style%20(1).png?raw=true)
 
 ## [Shot List](https://docs.google.com/document/d/15HBVRKYggiffEY8rlZ7ENggbnJ7BUYKMNvFxwbLAh1s/edit?usp=sharing)-Kai and Elliott (Also Planned Shots while filming)

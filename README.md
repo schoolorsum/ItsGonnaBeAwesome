@@ -102,3 +102,7 @@ https://drive.google.com/drive/folders/1s_hGLVaIUu5uX-KZEZ9yMRkFAOwBad3T?usp=sha
 [Interview Questions](https://docs.google.com/document/d/1u_um48rdTowUN-R5aCttvrxCBuqUQPy6LZI_otsMt1M/edit?tab=t.0)
 
 [Final Video](https://drive.google.com/file/d/1VYXA7M185r25qBeXtEHfZVOyDeBqDw2b/view?usp=sharing)
+
+### Daily Video Announcements
+
+[Monday may 5th] (https://drive.google.com/file/d/1yPtrmG75wjJ28Nv2vT8keDNnW7-CTLDa/view?usp=sharing)

@@ -25,15 +25,15 @@ Emotional Support: Cache
 
 
 # Introduction Sequences
-## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex
- 
+##  [Final Intro](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing) by Kai
+
 ## [Halloween Special](<https://drive.google.com/file/d/1CydNMCPIOI8VIEZuBa-VF2cI2JRJ3QMr/view?usp=drive_link>) by Alex
 
 ## [Intro](https://drive.google.com/file/d/1S79mpuuQqZiKDfzzrg09ULjvEvIyPe6O/view?usp=sharing) by Penny 
 
 ## [Intro](https://drive.google.com/file/d/1GndCfV_oRuM5ZZCzkgnx03LwGZJwm-eD/view?usp=drive_link) by David
 
-## [Intro](https://drive.google.com/file/d/1vFNtsY5Sud5Tp62g1QMVG9pu8Xr1ePKo/view?usp=sharing) by Kai
+## [Intro](https://drive.google.com/file/d/1DI3YGsWHYkHewW3KMntD0iSFccK3ulzx/view?usp=drive_link) by Alex
 
 ## [Intro](https://drive.google.com/file/d/1wLdPhMCZOdX2284ZYbbVT-C2-fpE3MAk/view?usp=sharing) by Elliott
 

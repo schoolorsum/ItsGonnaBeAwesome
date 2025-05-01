@@ -105,4 +105,4 @@ https://drive.google.com/drive/folders/1s_hGLVaIUu5uX-KZEZ9yMRkFAOwBad3T?usp=sha
 
 ### Daily Video Announcements
 
-[Monday may 5th] (https://drive.google.com/file/d/1yPtrmG75wjJ28Nv2vT8keDNnW7-CTLDa/view?usp=sharing)
+[Monday may 5th](https://drive.google.com/file/d/1yPtrmG75wjJ28Nv2vT8keDNnW7-CTLDa/view?usp=sharing)

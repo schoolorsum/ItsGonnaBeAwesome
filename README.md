@@ -15,6 +15,9 @@ Teleprompter Operator: [Kai](https://github.com/VentiShake/vidproportfolio2025)
 Lighting Technician: [Jane](https://github.com/janiee921/jmeportfolio25)
 
 Emotional Support: Cache
+## Footage drive. please share footage in here.
+
+https://drive.google.com/drive/folders/1s_hGLVaIUu5uX-KZEZ9yMRkFAOwBad3T?usp=sharing
 
 ## StoryBoard
 ![Story Board](https://github.com/schoolorsum/VideoProductionTeam/blob/main/Assets/StoryBoard.png?raw=true)

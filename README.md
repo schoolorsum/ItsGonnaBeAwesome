@@ -106,3 +106,5 @@ https://drive.google.com/drive/folders/1s_hGLVaIUu5uX-KZEZ9yMRkFAOwBad3T?usp=sha
 # Daily Video Announcements
 
 [Wednesday May 7th Announcements](https://drive.google.com/file/d/1yPtrmG75wjJ28Nv2vT8keDNnW7-CTLDa/view?usp=sharing)
+
+[Friday May 9th Announcements](https://drive.google.com/file/d/1w8-4uVpJorieh6L_UUc-W2dC433Wt13X/view?usp=sharing)
